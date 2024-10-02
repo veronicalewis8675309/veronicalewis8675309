@@ -2,7 +2,7 @@
 - 👀 I’m interested in rowing, computer science, sailing, and chilling with my friends.
 - 🌱 I’m currently learning the usual stuff.
 - 💞️ I’m looking to collaborate on python and java.
-- 📫 How to reach me bearslewis at gmail
+- 📫 How to reach me -- DM me here.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I won a sailing race around the Farallones Islands when I was 7 months old. 
 
